@@ -1,3 +1,3 @@
 # contribart
 
-draw on the contribution ;)
+draw on the contributions plot ;)
